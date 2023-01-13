@@ -7,3 +7,4 @@ Hi, my name is Lucas Elroy. I am interested in data analysis, software engineeri
 - I love skiing! I have hurt myself many times doing this, but it has not diminished my love for it at all!
 - I play bass guitar for a Seattle local band. I also play regular guitar, but not well enough to play it for my band.
 - I like to explore Seattle in my spare time. I particularly enjoy going to new cafes. I try to go to at least 1 new one every week.
+- I also enjoy playing golf with my family.
